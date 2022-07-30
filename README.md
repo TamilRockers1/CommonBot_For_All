@@ -2,7 +2,7 @@
 
 ### COMMAN BOT FOR ALL MY TECHNOMINDZ SUBSCRIBERS With Pm Feature and settings Working One
 
-<p align="center"><a href="https://t.me/technomindzchat"><img src="https://telegra.ph/file/b417bdd01331179d5787c.jpg" width="500"></a></p>
+<p align="center"><a href="https://t.me/technomindzchat"><img src="https://telegra.ph/file/a7055927af890c47bd991.jpg" width="500"></a></p>
 
 # Introduction
 
