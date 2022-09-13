@@ -89,7 +89,7 @@ MADE BY @MCU_Linkz
 ### ꜱᴜᴘᴘᴏʀᴛ ᴀɴᴅ ᴜᴘᴅᴀᴛᴇꜱ🎑
 
 <a href="https://t.me/Team_RHD"><img src="https://img.shields.io/badge/Join-Main%20Channel-green.svg?style=for-the-badge&logo=Telegram">
-<a href="https://t.me/Mass_movie_request"><img src="https://img.shields.io/badge/Join-Support%20Group-blue.svg?style=for-the-badge&logo=Telegram">
+<a href="https://t.me/TamilMax_Discussion"><img src="https://img.shields.io/badge/Join-Support%20Group-blue.svg?style=for-the-badge&logo=Telegram">
   
 ## CREATED BY
  
